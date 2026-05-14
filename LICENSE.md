@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with professional nft flip bot | real-time-monitoring + wash-trading-detection, the #1 nft flip bot. Includes real-time-monitoring and
 
 
 
